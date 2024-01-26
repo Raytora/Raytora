@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Raytora
-- 👀 I’m interested in |CODE|
+- 👀 I’m |NOT| interested
 - 🌱 I’m currently learning (NOTHING)
 - 💞️ I’m looking to collaborate on {VOID}
-- 📫 How to reach me [DON'T]
+- 📫 [DON'T] reach me 
